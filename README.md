@@ -1,4 +1,4 @@
-### Olá Devs, me chamem de Baroni! 🚀
+### Me chamem de Baroni! 🚀
 <br>
 
 ##### [Linguagens]()👨‍💻
